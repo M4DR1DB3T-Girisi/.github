@@ -15,7 +15,7 @@ Yatırım şartı olmadan içeriklere ulaş, mobil uyumlu yapısıyla hızlıca 
 
 ---
 
-### 🔗 [➡️ Platforma Gitmek İçin Tıkla](https://rb.gy/q0n7z4)
+### 🔗 [➡️ Platforma Gitmek İçin Tıkla](https://t.ly/madridbetguncelgiris)
 
 ---
 
