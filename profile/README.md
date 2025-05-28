@@ -3,7 +3,7 @@
 ⚽ **m3dr1db3t platformunda yeni kullanıcılara özel erişim fırsatı aktif!**  
 Yatırım şartı olmadan içeriklere ulaş, mobil uyumlu yapısıyla hızlıca sistemi dene!
 
-[![Şimdi Deneyimle](https://i.ibb.co/ymvNcHXM/marakkkhess.jpg)](https://rb.gy/q0n7z4)
+[![Şimdi Deneyimle](https://i.ibb.co/ymvNcHXM/marakkkhess.jpg)](https://t.ly/madridbetguncelgiris)
 
 ---
 
