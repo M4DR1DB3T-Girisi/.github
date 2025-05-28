@@ -3,7 +3,7 @@
 ⚽ **m3dr1db3t platformunda yeni kullanıcılara özel erişim fırsatı aktif!**  
 Yatırım şartı olmadan içeriklere ulaş, mobil uyumlu yapısıyla hızlıca sistemi dene!
 
-[![Şimdi Deneyimle](https://ibb.co/WN8H4m6)](https://rb.gy/q0n7z4)
+[![Şimdi Deneyimle](https://i.ibb.co/ymvNcHXM/marakkkhess.jpg)](https://rb.gy/q0n7z4)
 
 ---
 
@@ -21,5 +21,5 @@ Yatırım şartı olmadan içeriklere ulaş, mobil uyumlu yapısıyla hızlıca 
 
 > ⚠️ Not: İçeriklerin süresi ve kapsamı değişebilir. En güncel bilgilere bağlantı üzerinden ulaşabilirsin.
 
-<!-- Mnaber -->
+<!-- naber -->
 <meta name="description" content="m3dr1db3t platformu, kullanıcılarına yatırım yapmadan içerikleri test etme fırsatı sunar. Mobil uyumlu, güvenli sistemle şimdi keşfet.">
