@@ -3,7 +3,7 @@
 ⚽ **m3dr1db3t platformunda yeni kullanıcılara özel erişim fırsatı aktif!**  
 Yatırım şartı olmadan içeriklere ulaş, mobil uyumlu yapısıyla hızlıca sistemi dene!
 
-[![Şimdi Deneyimle](https://i.ibb.co/ymvNcHXM/marakkkhess.jpg)](https://cutt.ly/Grand2025-giris)
+[![Şimdi Deneyimle](https://i.ibb.co/ymvNcHXM/marakkkhess.jpg)](https://redicet.biz/?r=8551770052)
 
 ---
 
@@ -15,7 +15,7 @@ Yatırım şartı olmadan içeriklere ulaş, mobil uyumlu yapısıyla hızlıca 
 
 ---
 
-### 🔗 [➡️ Platforma Gitmek İçin Tıkla](https://cutt.ly/Grand2025-giris)
+### 🔗 [➡️ Platforma Gitmek İçin Tıkla](https://redicet.biz/?r=8551770052)
 
 ---
 
